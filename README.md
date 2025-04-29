@@ -1,2 +1,7 @@
-# Errores-Frontend
-error
+Erorrororolsofdahfckdjagfjkgfskhfasfda
+fdas
+dfas
+fas
+fasf
+aSFASFadas 
+··
